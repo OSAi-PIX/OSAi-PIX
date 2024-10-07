@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @OSAi-PIX
+- 👀 I’m interested in creatin gmy own AI in the long run!
+- 🌱 I’m currently learning how to make simple AI image generator!
+- 💞️ I’m looking to collaborate on creating a simple clicker game!
+- 📫 How to reach me: charmageddon343@gmail.com or entityos99@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun facts: I love all things STEAM!
+-  And I love JavaScript and HTML!
